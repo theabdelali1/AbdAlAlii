@@ -13,7 +13,6 @@
 ### Let's Connect!
 
 🐦 Connect with me on [Twitter](https://twitter.com/AbdAlAlii1).
-📖 Connect with me on [medium](https://medium.com/@AbdAlAlii).
 
 
 ---
